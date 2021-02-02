@@ -1,1 +1,1 @@
-# goal-goat.github.io
+# Goal Goat
